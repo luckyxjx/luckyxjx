@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on projects- yes 
 - 📫 Feel free to disturb my peace at vklucky442@gmail.com 
 - 😄 Pronouns: he/him
-- ⚡ Fun fact: How we are alwasy drifting in space, that means we are moving constantly-so yes i am exercising.
+- ⚡ Fun fact: How we are always drifting in space, that means we are moving constantly-so yes i am exercising.
 
 <!---
 luckyxjx/luckyxjx is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
