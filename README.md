@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Lucky
 - 👀 I’m interested in making world beautiful with the help of data and numbers cause numbers never lie
-- 🌱 I’m currently learning data analytics using R, 
+- 🌱 I’m currently learning the Language of machine and how can i ask them to rule the world, 
 - 💞️ I’m looking to collaborate on projects- yes 
 - 📫 Feel free to disturb my peace at vklucky442@gmail.com 
 - 😄 Pronouns: he/him
